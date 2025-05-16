@@ -1,3 +1,5 @@
+Dhia Kansa Rona / 24.230.0054 / 2P51 (absen 24 soal B VelocityRent)
+
 Karena ukuran file terlalu besar untuk diulpoad langsung ke GitHub, Pak Ari bisa langsung download lewat Goggle Drive : 
 
 [*Klik di sini untuk download file codingan*](https://drive.google.com/drive/folders/1yB_kNsrYREFXPiPhaYaY6zvzMf3aWUOQ?usp=sharing)
